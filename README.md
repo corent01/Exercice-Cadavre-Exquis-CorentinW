@@ -5,6 +5,7 @@
 Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une homme marche dans la foret sombre avec une pelle a la main. mais que fait cet homme ? Se servant de sa pelle pour reboucher un trou qui pourrait contenir un corps humain, on ne peut que le deviner...
 tout le monde se pose la question mais pour l'instant, malgrès l'évidence, personnes dans ce publique de folie n'a encore deviné.. Prendre le publique de secret story n'était pas une bonne idée visiblement! *Il était une fois, dans un pays lointain, un groupe d'irréductibles* **__codeurs.__**
 
+<<<<<<< HEAD
 
 Ils possédaient un **secret** jalousement gardé... **__La potion BeCode!__**
 
@@ -26,5 +27,11 @@ Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait 
 
 un deux trois petits canards
 
+<<<<<<< HEAD
 C'est alors qui s'écria "Il est 9h01 !". Il était trop tard. Toutes ses ambitions fûrent anéanties par la SNCB ! Mais il allait se venger...
 
+=======
+=======
+mais il était un __fou__ qui voulait être __célèbre__, alors il tuer et partager son histoire
+>>>>>>> kateryna
+>>>>>>> 25515784fd3ab46646964a5f1878bccac4a57c64
