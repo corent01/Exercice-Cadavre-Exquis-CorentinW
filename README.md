@@ -18,3 +18,5 @@ mais il était un fou qui voulait être célèbre, alors il tuer et partager son
 Dans une galaxie très lointaine, deux patates s'affrontent.
 
 Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait qui sortira vainqueur.
+
+un deux trois petits canards
