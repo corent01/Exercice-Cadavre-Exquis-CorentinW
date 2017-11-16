@@ -2,4 +2,4 @@
 
 **Le Découpeur de Têtes**
 
-Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une homme marche dans la foret sombre avec une pelle a la main. mais que fait cet homme ? 
+Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une homme marche dans la foret sombre avec une pelle a la main. mais que fait cet homme ? Se servant de sa pelle pour reboucher un trou qui pourrait contenir un corps humain, on ne peut que le deviner...
