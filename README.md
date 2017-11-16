@@ -27,11 +27,11 @@ Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait 
 
 un deux trois petits canards
 
-<<<<<<< HEAD
+
 C'est alors qui s'écria "Il est 9h01 !". Il était trop tard. Toutes ses ambitions fûrent anéanties par la SNCB ! Mais il allait se venger...
 
-=======
-=======
+
 mais il était un __fou__ qui voulait être __célèbre__, alors il tuer et partager son histoire
->>>>>>> kateryna
->>>>>>> 25515784fd3ab46646964a5f1878bccac4a57c64
+
+
+*HODOR* **HODOR** HODOR
