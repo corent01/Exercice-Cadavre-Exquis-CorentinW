@@ -6,4 +6,5 @@ Nous somme en 1444 dans la région de la foret Noir, par un temps de brume, une 
 tout le monde se pose la question mais pour l'instant, malgrès l'évidence, personnes dans ce publique de folie n'a encore deviné.. Prendre le publique de secret story n'était pas une bonne idée visiblement!
 
 une homme...
+mais il était un fou qui voulait être célèbre, alors il tuer et partager son histoire
 
