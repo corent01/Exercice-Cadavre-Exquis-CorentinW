@@ -15,6 +15,14 @@ une homme...
 mais il était un fou qui voulait être célèbre, alors il tuer et partager son histoire
 
 
+
 Je s'appelle Groot...
 Je s'appelle Groot!
 Je s'appelle Groot?
+
+Dans une galaxie très lointaine, deux patates s'affrontent.
+
+Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait qui sortira vainqueur.
+
+un deux trois petits canards
+
