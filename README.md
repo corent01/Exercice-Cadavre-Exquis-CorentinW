@@ -26,3 +26,5 @@ Elles s'affrontent pour la suprématie de la planète compote. Personne ne sait 
 
 un deux trois petits canards
 
+C'est alors qui s'écria "Il est 9h01 !". Il était trop tard. Toutes ses ambitions fûrent anéanties par la SNCB ! Mais il allait se venger...
+
