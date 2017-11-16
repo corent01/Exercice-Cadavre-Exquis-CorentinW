@@ -15,3 +15,6 @@ une homme...
 mais il était un fou qui voulait être célèbre, alors il tuer et partager son histoire
 >>>>>>> c6f8e07514481d76d4bec12f7a3a3406691218b1
 
+Je s'appelle Groot...
+Je s'appelle Groot!
+Je s'appelle Groot?
