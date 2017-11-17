@@ -45,3 +45,14 @@ ________________
 Quand un verre est plein on le vide. Et quand il est vide on le plaint.
 On boira du lait quand les vaches mangeront du raisin.
 Conduire ou choisir, il faut boire.
+
+## Salut à toi nôble Corentin
+
+### But du message de bernar
+Invitation à un jeu web Forge Of Empire
+
+###Nom du joueur Bernard
+Je m'appelle Marchand de Frite sur le monde de Parkog
+
+**Fin message bernard**
+
