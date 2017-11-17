@@ -36,4 +36,30 @@ mais il était un __fou__ qui voulait être __célèbre__, alors il tuer et part
 
 *HODOR* **HODOR** HODOR
 
-Et tout le monde se retrouvera en retard ! 
+Et tout le monde se retrouvera en retard !
+
+________________
+
+> **_VOUUUS_** NEEEE ~~PASSEREEEZ~~ * *PAAAS* !!
+
+Quand un verre est plein on le vide. Et quand il est vide on le plaint.
+On boira du lait quand les vaches mangeront du raisin.
+Conduire ou choisir, il faut boire.
+
+## Salut à toi nôble Corentin
+
+### But du message de bernar
+Invitation à un jeu web Forge Of Empire
+
+###Nom du joueur Bernard
+Je m'appelle Marchand de Frite sur le monde de Parkog
+
+**Fin message bernard**
+
+Premier arrêt, le train ne démarre pas. Y a-t-il un Docteur?  
+Depuis quand les Docteurs prennent le train et laissent leur tracteur!  
+Ouf, je change de train et arrive à l'heure, j'ai eu vraiment peur.  
+
+
+
+il était une bergèèèèèreuh qui allait au marché !!
